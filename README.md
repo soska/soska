@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi! My name is Armando Sosa 👍🏽
+
+I'm thinking on a good creative use of this space. Meanwhile, enjoy it being super boring.
 
 <!--
 **soska/soska** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
